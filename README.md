@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @JayeLee17,from China
-- 👀 I’m interested in traceling ,lego...
+- 👀 I’m interested in traveling ,lego...
 - 🌱 I’m currently learning Artificial Intelligence
 - 💞️ I’m looking to collaborate on everyone that has any brilliant ideas as a freshman in college
 - 📫 you can reach me by LJY@bupt.edu.cn
