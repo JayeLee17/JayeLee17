@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @JayeLee17,from China
 - 👀 I’m interested in traveling ,lego...
 - 🌱 I’m currently learning Artificial Intelligence
-- 💞️ I’m looking to collaborate on everyone that has any brilliant ideas as a freshman in college
+- 💞️ I’m looking to collaborate on someone that are interested in multimodal languaging learning model & efficient AI etc.
 - 📫 you can reach me by LJY@bupt.edu.cn
 
 <!---
